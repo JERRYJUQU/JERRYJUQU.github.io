@@ -1,1 +1,0 @@
-# JERRYJUQU.github.io
